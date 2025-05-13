@@ -1,1 +1,1 @@
-# jantaelectricalsecurity.com
+# jantarity.com
